@@ -16,8 +16,8 @@
 - `chutia/chutiya` - Pussy. (refering to you as one.)
 - `fattu` - Timid
 - `gand/gaand`- Ass/Butt/Rump.
-- `gand maar` - Masturbate(ing).
-- `gand marvao` - Get yourself Masturbated.
+- `gand maar` - Fuck Ass/Butt/Rump.
+- `gand marvao` - Get your Ass/Butt/Rump fucked.
 - `gandu` - Asshole.
 - `gadha/gadhe` - Ass/Donkey
 - `gadhalund` - Penis of the aforementioned donkey.
